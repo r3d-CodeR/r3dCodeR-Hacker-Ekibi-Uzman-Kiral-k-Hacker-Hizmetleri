@@ -47,10 +47,8 @@ Dijital dünyada güvenliğinizi sağlamak veya belirli siber operasyonlar için
 İster hesap kurtarma, ister bilgi güvenliği veya takip hizmetleri olsun, r3dCodeR© profesyonel kiralık hacker ekibi ile yanınızda. Tüm işlemler gizlilik, hız ve profesyonellik çerçevesinde yürütülür.
 
 ## 📩 Hemen İletişime Geçin:
-- 🌐 Web Sitesi: [https://r3dCodeR.wordpress.com](https://r3dCodeR.wordpress.com)
 - 📱 WhatsApp: [https://wa.me/905465920064](https://wa.me/905465920064)
 - 🐦 Twitter (X): [https://x.com/r3dCodeR](https://x.com/r3dCodeR)
-- 📸 Instagram: [https://instagram.com/r3d.coder](https://instagram.com/r3d.coder)
 - 📌 Pinterest: [https://tr.pinterest.com/r3dcoder](https://tr.pinterest.com/r3dcoder)
 - 📘 Facebook: [https://www.facebook.com/r3dCodeR](https://www.facebook.com/r3dCodeR)
 - 🔗 GitHub: [https://github.com/r3d-CodeR](https://github.com/r3d-CodeR)
