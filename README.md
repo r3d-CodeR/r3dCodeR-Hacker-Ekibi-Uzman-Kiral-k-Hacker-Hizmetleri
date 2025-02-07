@@ -50,7 +50,7 @@ Dijital dünyada güvenliğinizi sağlamak veya belirli siber operasyonlar için
 - 📱 WhatsApp: [https://wa.me/905465920064](https://wa.me/905465920064)
 - 🐦 Twitter (X): [https://x.com/r3dCodeR](https://x.com/r3dCodeR)
 - 📌 Pinterest: [https://tr.pinterest.com/r3dcoder](https://tr.pinterest.com/r3dcoder)
-- 📘 Facebook: [https://www.facebook.com/r3dCodeR](https://www.facebook.com/r3dCodeR)
+- 📘 Face: [https://www.facebook.com/r3dCodeR](https://www.facebook.com/r3dCodeR)
 - 🔗 GitHub: [https://github.com/r3d-CodeR](https://github.com/r3d-CodeR)
 
 #kiralıkhackerarıyorum #profesyonelkiralıkhacker #güvenilirkiralıkhacker #r3dCodeR #hesapkurtarma #siberistihbarat #siberoperasyon #whatsapphack #verikurtarma #googlehaberkaldırma #telefonhack #konumtakip #darkwebanaliz
